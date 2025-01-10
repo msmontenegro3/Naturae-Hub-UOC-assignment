@@ -1,1 +1,0 @@
-# Naturae-Hub-UOC-assignment
